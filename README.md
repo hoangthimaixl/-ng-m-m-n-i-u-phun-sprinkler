@@ -1,4 +1,4 @@
-# -ng-m-m-n-i-u-phun-sprinkler
+ong mem noi dau phun 
 ống mềm nối đầu phun sprinkler, ống mềm nối đầu phun sprinkler hàn quốc, ống mềm sprinkler, ống mềm nối đầu phun
 ống mềm nối đầu phun sprinkler
 1. Tên thường gọi của ống mềm kết nối đầu phun Sprinkler :
